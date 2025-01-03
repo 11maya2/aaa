@@ -1,5 +1,3 @@
 # aaa
 
-sdfasdf
-sdfsdafsafasf22
-https://www.baidu.com
+stclcashurl-https://api.asdfsad.cc
