@@ -1,3 +1,1 @@
-# aaa
-
-stclcashurl-https://api.asdfsad.cc
+manchincredit&&manchinfiner.top$$
